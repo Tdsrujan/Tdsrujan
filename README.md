@@ -35,8 +35,13 @@ I'm looking for entry-level opportunities in DevOps and Cloud Engineering where 
 
 ## 🤝 Let's Connect
 
-- GitHub: [@Tdsrujan](https://github.com/Tdsrujan)
+- 📧 **Email:** [tdsrujanpatel19@gmail.com](mailto:tdsrujanpatel19@gmail.com)
+- 💼 **LinkedIn:** [linkedin.com/in/srujan19patel](https://www.linkedin.com/in/srujan19patel)
+- 🐙 **GitHub:** [github.com/Tdsrujan](https://github.com/Tdsrujan)
 
+---
+
+⭐ Thanks for visiting my profile!
 ---
 
 ⭐ *Thanks for visiting my profile!*
